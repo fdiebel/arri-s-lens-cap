@@ -1,4 +1,4 @@
-Rear lens cap - ARRI S Mount lenses.
+Rear lens cap - ARRI S Mount lens
 =============
 
 A rear lens cap for any ARRI S mount lens.
